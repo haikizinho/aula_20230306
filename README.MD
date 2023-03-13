@@ -6,4 +6,7 @@
 
 não sei
 
-o miguel fez lambança viu
+o miguel fez lambança viu... (mantive a minha alteração)
+
+kkkkkkkkkkkkkkkkkkkk (aceitei a alteração remota)
+
